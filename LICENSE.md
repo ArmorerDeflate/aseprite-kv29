@@ -1,4 +1,4 @@
-# 
+# advanced Adobe Photoshop para PC addons é o melhor Adobe Photoshop para PC addons com suporte a arquivos RAW e edição de caminhos. Seguro, confiável e otimizado para máximo
 
 
 
